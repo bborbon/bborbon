@@ -16,5 +16,5 @@ Here are some ideas to get you started:
 -->
 I'm a Registered Nurse looking to further my education and start a new carrier in technology. 
 I'm eager to learn to code and become a new software developer.
-You may reach me on my linked in account under Berenice Borbon. 
+You may reach me on my linked in account www.linkedin.com/in/berenice-borbon. 
 During my free time I like to go on hikes and spend time with my family and friends.
